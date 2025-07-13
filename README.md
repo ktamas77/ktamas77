@@ -1,1 +1,1 @@
-# ktamas77
+gen-x hacker raised on the commodore 64, with a deep love for sid chip music. silicon valley veteran with a focus on designing large-scale, resilient, and scalable systems. former serial startup founder, now prompt engineer.
